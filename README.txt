@@ -1,2 +1,2 @@
 do or die
-be brave
+be brave man
